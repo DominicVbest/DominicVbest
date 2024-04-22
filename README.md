@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @DominicVbest
-- 👀 I’m interested in existing
-- 🌱 I’m currently learning how to live
-- 💞️ I’m looking to collaborate with Goggy on funny mc server rules
-- 📫 How to reach me fuck off
+
